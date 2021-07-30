@@ -8,3 +8,4 @@
 -     163:l206046062@163.com
 -     But no phone call ;)
 -     Like Genshin Impact and bilibili but have no chance to be a Youtuber :(
+-     Tschüss!
