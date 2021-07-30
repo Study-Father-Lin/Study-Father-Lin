@@ -6,6 +6,6 @@
 -     Email Address : 
 -     QQ: 206047062@qq.com
 -     163:l206046062@163.com
--     But no phone call ;)
+-     I have a telephone number, but I am not going to tell you ;)
 -     Like Genshin Impact and bilibili but have no chance to be a Youtuber :(
 -     Tschüss!
